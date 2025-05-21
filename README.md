@@ -1,0 +1,1 @@
+# A-Novel-Deep-Learning-Approach-to-Objective-Scoring-of-Art-College-Entrance-Examination-Paintings
